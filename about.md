@@ -8,7 +8,8 @@ This is a high school student
 
 ### More Information
 
-im a very fun
+I love Hentai, im a weeb, pro league gamer
+
 ### plz don't Contact me
 
 [email@domain.com](mailto:kennetht7235@aurorak12.org)
