@@ -8,7 +8,7 @@ This is a high school student
 
 ### More Information
 
-I love Hentai, im a weeb, pro league gamer
+I love Hentai, im a weeb, wish to me a pro league gamer
 
 ### plz don't Contact me
 
