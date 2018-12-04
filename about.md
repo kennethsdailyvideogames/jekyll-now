@@ -9,6 +9,6 @@ This is a high school student
 ### More Information
 
 im a very fun
-### Contact me
+### plz don't Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[email@domain.com](mailto:kennetht7235@aurorak12.org)
